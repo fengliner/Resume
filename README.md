@@ -3,7 +3,7 @@
 ### 联系方式：
 
  - phone：15652902842
- - email：ballislove1991@gmail.com
+ - email：xubensheng0802@163.com
  - QQ：1009352119
 
 ### 个人信息：
